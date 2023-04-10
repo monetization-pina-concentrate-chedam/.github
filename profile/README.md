@@ -1,3 +1,3 @@
 # [Monetization Pina Concentrate Chedam](https://github.com/monetization-pina-concentrate-chedam)
 
-## Nothing here (yet)
+## Building Next Gen Tech. Just keep watching
